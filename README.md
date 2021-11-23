@@ -1,0 +1,1 @@
+Meu nome é Juliana, sou de Campo Grande no Mato Grosso do Sul.Formada em Serviço Social, atualmente desbravando a área de tecnologia.
